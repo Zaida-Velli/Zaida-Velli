@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Zaida-Velli
+- 👀 I’m interested in Reading books, drawing and playing video games.
+- 🌱 I’m currently learning geometry
+- 💞️ I’m looking to collaborate on NONE
+- 📫 How to reach me on discord _velli.zaida_#5790
